@@ -1,1 +1,1 @@
-fuck you microsoft
+https://opal.cash
